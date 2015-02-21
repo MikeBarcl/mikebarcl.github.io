@@ -41,4 +41,9 @@ I'm a member of my local [Hackspace](http://swansea.hackspace.org.uk/) and enjoy
 #Religion
 I didn't think I had one until my mum recently told me I was a [Pantheist](https://en.wikipedia.org/wiki/Pantheism) , thanks mum
 
+-----
+
+All those words how about a picture? Here's one of blue bells in the Bonsli woods were I grew up.
+
+![picture](https://www.dropbox.com/s/qai2l74sg5e2pzx/2011-04-23%2016.00.48.jpg?dl=0)
 
