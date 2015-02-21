@@ -2,6 +2,7 @@
 layout: page
 title: Online identity hub for Mike
 ---
+-------
 
 #Work
 I'm working at [Quantarc] (http://www.quantarc.co.uk/), in the Facilities management/Surveying/Building Services Engineering type area.
