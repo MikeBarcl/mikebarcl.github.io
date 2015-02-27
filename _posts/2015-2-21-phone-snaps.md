@@ -3,7 +3,7 @@ layout: post
 title: Old Phone Snaps
 ---
 
-I was looking through my drop box folder for photos that I could add to the front page, I descided on one showing blue bells. I saw quite a few picture I'd like to post up so thats what I'm doing here. the quality is maybe not the best but they are pictures that I thought would be nice to share.
+I was looking through my drop box folder for photos that I could add to the front page, I descided on one showing blue bells. I saw quite a few pictures I'd like to post up so thats what I'm doing here. the quality is maybe not the best but they are pictures that I thought would be nice to share.
 
 --------
 photo from mums birthday on the beach, Tante Anita, Mum and Sister Paula
