@@ -64,6 +64,8 @@ the full hawl
 cooked
 ![pic](https://lh3.googleusercontent.com/-fM5Yi65IY3s/VS1kNCUM9mI/AAAAAAAAAis/aImlrJKdwYs/w146-h193-p-no/IMG_20150320_182224.jpg)
 
+picture of the sky and lighthouse
+![pic](https://lh3.googleusercontent.com/-Ql9XhUYYVO8/VS1iiwwviXI/AAAAAAAAAis/kCHBAEg-Gg4/w269-h201-p-no/IMG_20150304_170913.jpg)
 
 
 
