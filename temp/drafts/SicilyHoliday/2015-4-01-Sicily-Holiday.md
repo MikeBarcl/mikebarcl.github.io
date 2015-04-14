@@ -28,30 +28,30 @@ its a dead sheep john dressed it up
 
 
 rainy day in Erice
-[pic](https://lh3.googleusercontent.com/-vfdFIlXtDsc/VS1ijyIVY3I/AAAAAAAAAis/BdP6wbNRk4o/w269-h201-p-no/IMG_20150306_135656.jpg)
+![pic](https://lh3.googleusercontent.com/-vfdFIlXtDsc/VS1ijyIVY3I/AAAAAAAAAis/BdP6wbNRk4o/w269-h201-p-no/IMG_20150306_135656.jpg)
 
 
 nice landscape
-[pic](https://lh3.googleusercontent.com/-GRaMdiZSxyo/VS1i-2gnJUI/AAAAAAAAAis/j326LRHn_aw/w270-h201-p-no/IMG_20150307_105417.jpg)
+![pic](https://lh3.googleusercontent.com/-GRaMdiZSxyo/VS1i-2gnJUI/AAAAAAAAAis/j326LRHn_aw/w270-h201-p-no/IMG_20150307_105417.jpg)
 
 Moz climbing 
-[pic](https://lh3.googleusercontent.com/-Vu06E_E8IKg/VS1jPB8SF8I/AAAAAAAAAis/PO4ALGaPnHM/w269-h201-p-no/IMG_20150307_113734.jpg)
+![pic](https://lh3.googleusercontent.com/-Vu06E_E8IKg/VS1jPB8SF8I/AAAAAAAAAis/PO4ALGaPnHM/w269-h201-p-no/IMG_20150307_113734.jpg)
 
 rocks and greenery
-[pic](https://lh3.googleusercontent.com/-ZC7dFP9ysec/VS1jUDHpkDI/AAAAAAAAAis/IMaJM7ZwwV8/w152-h201-p-no/IMG_20150307_113934.jpg)
+![pic](https://lh3.googleusercontent.com/-ZC7dFP9ysec/VS1jUDHpkDI/AAAAAAAAAis/IMaJM7ZwwV8/w152-h201-p-no/IMG_20150307_113934.jpg)
 
 
 cemetry
-[pic](https://lh3.googleusercontent.com/-23B9AVVmN-c/VS1jfS2HX9I/AAAAAAAAAis/hhWU4MOr1Sk/w282-h211-p-no/IMG_20150310_144025.jpg)
+![pic](https://lh3.googleusercontent.com/-23B9AVVmN-c/VS1jfS2HX9I/AAAAAAAAAis/hhWU4MOr1Sk/w282-h211-p-no/IMG_20150310_144025.jpg)
 
 
 moz and john strolling on the beach
 
-[pic](https://lh3.googleusercontent.com/-nVBi0By8mdU/VS1jsZ-PDBI/AAAAAAAAAis/cx7fMIOVYsk/w269-h201-p-no/IMG_20150310_144744.jpg)
+![pic](https://lh3.googleusercontent.com/-nVBi0By8mdU/VS1jsZ-PDBI/AAAAAAAAAis/cx7fMIOVYsk/w269-h201-p-no/IMG_20150310_144744.jpg)
 
 
 Sylvia on the harbour
-[pic](https://lh3.googleusercontent.com/-liYOZ8cm2A8/VS1kAH8fykI/AAAAAAAAAis/cUuGn84H_jc/w146-h193-p-no/IMG_20150317_131909.jpg)
+![pic](https://lh3.googleusercontent.com/-liYOZ8cm2A8/VS1kAH8fykI/AAAAAAAAAis/cUuGn84H_jc/w146-h193-p-no/IMG_20150317_131909.jpg)
 
 
 
