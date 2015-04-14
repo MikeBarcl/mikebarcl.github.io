@@ -54,6 +54,16 @@ Sylvia on the harbour
 ![pic](https://lh3.googleusercontent.com/-liYOZ8cm2A8/VS1kAH8fykI/AAAAAAAAAis/cUuGn84H_jc/w146-h193-p-no/IMG_20150317_131909.jpg)
 
 
+asparagus
+
+![pic](https://lh3.googleusercontent.com/-UN88mSBrnvQ/VS1kL3Tn3dI/AAAAAAAAAis/TgEWnSj95WM/w146-h193-p-no/IMG_20150320_122514.jpg)
+
+the full hawl
+![pic](https://lh3.googleusercontent.com/-uGozONXay04/VS1kFjy5_8I/AAAAAAAAAis/7vKcyu7_4Es/w146-h193-p-no/IMG_20150320_180647.jpg)
+
+cooked
+![pic](https://lh3.googleusercontent.com/-fM5Yi65IY3s/VS1kNCUM9mI/AAAAAAAAAis/aImlrJKdwYs/w146-h193-p-no/IMG_20150320_182224.jpg)
+
 
 
 
