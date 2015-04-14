@@ -67,6 +67,8 @@ cooked
 picture of the sky and lighthouse
 ![pic](https://lh3.googleusercontent.com/-Ql9XhUYYVO8/VS1iiwwviXI/AAAAAAAAAis/kCHBAEg-Gg4/w269-h201-p-no/IMG_20150304_170913.jpg)
 
+and again
+[pic](https://lh6.googleusercontent.com/-Ql9XhUYYVO8/VS1iiwwviXI/AAAAAAAAAis/kCHBAEg-Gg4/w564-h423-no/IMG_20150304_170913.jpg)
 
 
 
