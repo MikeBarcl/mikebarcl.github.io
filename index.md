@@ -48,4 +48,4 @@ All those words how about a picture?
 
 ![picture](https://dl.dropboxusercontent.com/s/qai2l74sg5e2pzx/2011-04-23%2016.00.48.jpg?dl=0)
 
-Here's one of blue bells from Bonsli woods were I grew up.
+Here's one of blue bells from Bonsley woods where I grew up.
