@@ -5,13 +5,14 @@ title: Online identity hub for Mike
 -------
 
 #Work
-I'm working at [Quantarc] (http://www.quantarc.co.uk/), in the Facilities management/Surveying/Building Services Engineering type area.
+I have a 0.5FTE lecturing post at [The University of Wales Trinity St David, School of Architecture, Built and Natural Environments](http://www.uwtsd.ac.uk/built-natural-environment/)
+
+I am open to consultancy if it can be organised around my university commitments. For example I have worked for [Quantarc] (http://www.quantarc.co.uk/), in the Facilities management/Surveying/Building Services Engineering type area.
 
 
 #Research
 My research ID and publications are on [Orchid](http://orcid.org/0000-0002-4417-7903). 
-I review for Building and Environment and have even been awarded the [outstanding reviewer award](http://www.reviewerrecognition.elsevier.com/recognition/index?key=1B4517F5E6377160A002F298890F30D874C69BE883FDE66EA24A772F30FED96E) I guess I have more time than most academics
-
+I review for Building and Environment and have even been awarded the [outstanding reviewer award](http://www.reviewerrecognition.elsevier.com/recognition/index?key=1B4517F5E6377160A002F298890F30D874C69BE883FDE66EA24A772F30FED96E)
 
 #Social Media
 Don't get too excited I don't say much
