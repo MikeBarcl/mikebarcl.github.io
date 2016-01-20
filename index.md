@@ -34,10 +34,10 @@ I'm well into rock climbing and my local indoor wall is [Dynamic Rock](http://ww
 
 I like the outdoors generally actually climbing, walking, surfing or just being outside is great.
 
-To help with some back problems and generally improve myself I've started Yoga with [Kathryn](https://www.facebook.com/Yoga.with.Kathryn)
+To help with some back problems and generally improve myself I started Yoga with [Kathryn](https://www.facebook.com/Yoga.with.Kathryn). I've not been in a while but hope to again in the future
 
 
-I'm a member of my local [Hackspace](http://swansea.hackspace.org.uk/) and enjoy a bit of tinkering
+I used to be a member of my local [Hackspace](http://swansea.hackspace.org.uk/) and enjoy a bit of tinkering but agian not been in a while.
 
 #Religion
 I didn't think I had one until my mum recently told me I was a [Pantheist](https://en.wikipedia.org/wiki/Pantheism) , thanks mum
