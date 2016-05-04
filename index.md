@@ -25,7 +25,7 @@ Don't get too excited I don't say much
 
 * [Linkedin](uk.linkedin.com/in/MichaelBarclayatlinkedin)
 
-I think there is a old bebo account some where though that is best left alone.
+I think there is an old bebo account some where though that is best left alone.
 
 I will make posts to [part of this site](/posts) for example words and pictures of holidays etc.
 
