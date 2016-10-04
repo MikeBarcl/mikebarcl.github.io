@@ -5,10 +5,7 @@ title: Online identity hub for Mike
 -------
 
 #Work
-I have a 0.5FTE lecturing post at [The University of Wales Trinity St David, School of Architecture, Built and Natural Environments](http://www.uwtsd.ac.uk/built-natural-environment/)
-
-I am open to consultancy if it can be organised around my university commitments. For example I have worked for [Quantarc] (http://www.quantarc.co.uk/), in the Facilities management/Surveying/Building Services Engineering type area.
-
+I am a research associate at [The Welsh School of Architecture](http://www.cardiff.ac.uk/architecture/research/groups/architectural-science-group/)
 
 #Research
 My research ID and publications are on [Orchid](http://orcid.org/0000-0002-4417-7903). 
