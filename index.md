@@ -5,7 +5,7 @@ title: Online identity hub for Mike
 -------
 
 #Work
-I am a research associate at [The Welsh School of Architecture](http://www.cardiff.ac.uk/architecture/research/groups/architectural-science-group/)
+I work for Swansea University at [SPECIFIC](http://www.specific.eu.com/)
 
 #Research
 My research ID and publications are on [Orchid](http://orcid.org/0000-0002-4417-7903). 
