@@ -4,14 +4,14 @@ title: Online identity hub for Mike
 ---
 -------
 
-#Work
+# Work
 I work for Swansea University at [SPECIFIC](http://www.specific.eu.com/)
 
-#Research
+# Research
 My research ID and publications are on [Orchid](http://orcid.org/0000-0002-4417-7903). 
 I review for Building and Environment and have even been awarded the [outstanding reviewer award](http://www.reviewerrecognition.elsevier.com/recognition/index?key=1B4517F5E6377160A002F298890F30D874C69BE883FDE66EA24A772F30FED96E)
 
-#Social Media
+# Social Media
 Don't get too excited I don't say much
 
 * [twitter](https://twitter.com/Mikeybarcly)
@@ -26,7 +26,7 @@ I think there is an old bebo account some where though that is best left alone.
 
 There are some posts in this [part of this site](/posts) for example words and pictures of holidays etc.
 
-#Play
+# Play
 I'm well into rock climbing and my local indoor wall is [Dynamic Rock](http://www.dynamicrock.co.uk/)
 
 I like the outdoors generally actually climbing, walking, surfing or just being outside is great.
@@ -36,7 +36,7 @@ To help with some back problems and generally improve myself I started Yoga with
 
 I used to be a member of my local [Hackspace](http://swansea.hackspace.org.uk/) and enjoy a bit of tinkering but again not been in a while.
 
-#Religion
+# Religion
 I didn't think I had one until my mum recently told me I was a [Pantheist](https://en.wikipedia.org/wiki/Pantheism) , thanks mum
 
 -----
