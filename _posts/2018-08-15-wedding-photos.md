@@ -17,8 +17,6 @@ and the full set will be [here](https://photos.app.goo.gl/BuBS87ofPBmTCBJm6). Th
 
 <iframe src="https://drive.google.com/file/d/1cwKLeC2v9gHd4aMIlvJlEyF17QH28mtfGA/preview" width="640" height="480"></iframe>
 
-<iframe src="https://drive.google.com/file/d/1D7IUZ7A7FHUk-9A625Uo_De7X7CaobxxpA/preview" width="640" height="480"></iframe>
-
 <iframe src="https://drive.google.com/file/d/1QnLQs_ie89Y-jACOPtu6GcWExQ-fVaTrXQ/preview" width="640" height="480"></iframe>
 
 <iframe src="https://drive.google.com/file/d/1cJknDbvhzkJiZe-O7A67QoZZqqZMvYGTkg/preview" width="640" height="480"></iframe>
