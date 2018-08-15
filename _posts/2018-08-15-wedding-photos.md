@@ -2,7 +2,7 @@
 layout: post
 title: Mike and Sylv's Wedding photos
 ---
-a page to add a few favourite photos and links to the full sets
+
 ---
 
 # Photographer in cheif
