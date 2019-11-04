@@ -5,7 +5,7 @@ title: Online identity hub for Mike
 -------
 
 # Work
-I work for Swansea University at [SPECIFIC](http://www.specific.eu.com/)
+I am a trainee clinical scientist based at Swansea bay university health board, audiology department.
 
 # Research
 My research ID and publications are on [Orchid](http://orcid.org/0000-0002-4417-7903). 
