@@ -5,26 +5,11 @@ title: Online identity hub for Mike
 -------
 
 # Work
-I am a trainee clinical scientist based at Swansea bay university health board, audiology department.
+I am a self employed rope access technician with an IRATA level one qualification. Feel free to get in touch to talk about hiring me. ropeaccess@mbarclay.me.uk.
 
 # Research
 My research ID and publications are on [Orchid](http://orcid.org/0000-0002-4417-7903). 
-I review for Building and Environment and have even been awarded the [outstanding reviewer award](http://www.reviewerrecognition.elsevier.com/recognition/index?key=1B4517F5E6377160A002F298890F30D874C69BE883FDE66EA24A772F30FED96E)
-
-# Social Media
-Don't get too excited I don't say much
-
-* [twitter](https://twitter.com/Mikeybarcly)
-
-* [Google](https://plus.google.com/+MichaelBarclayongoogle/)
-
-* [Facebook](https://www.facebook.com/michael.barclay.7121)
-
-* [Linkedin](uk.linkedin.com/in/MichaelBarclayatlinkedin)
-
-I think there is an old bebo account some where though that is best left alone.
-
-There are some posts in this [part of this site](/posts) for example words and pictures of holidays etc.
+I sometimes review for Building and Environment. 
 
 # Play
 I'm well into rock climbing and my local indoor wall is [Dynamic Rock](http://www.dynamicrock.co.uk/)
